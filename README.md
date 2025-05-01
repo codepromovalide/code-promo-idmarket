@@ -5,7 +5,7 @@ Mais pour économiser encore plus, une seule question s’impose : **où trouver
 ## Les meilleurs codes promo IDMarket valides actuellement  
 
 ### Code promo Idmarket 5 % de réduction  
-Profitez d’une remise immédiate de 5 % sur votre commande grâce au code **PROMO5B**, à saisir avant le paiement dans le champ dédié.  
+Profitez d’une remise immédiate de 5 % sur votre commande grâce au [code **PROMO5B** cliquez ici pour le valider]("https://www.servicevie.com/codepromoidmarket"), à saisir avant le paiement dans le champ dédié.  
 
 ### Code Idmarket de 5 €  
 Obtenez une économie de 5 € en utilisant le code **WPP519** lors de votre passage en caisse.  
