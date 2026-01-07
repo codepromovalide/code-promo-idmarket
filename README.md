@@ -31,6 +31,25 @@ Une sélection de produits pour l’entretien et l’organisation est proposée 
 ### Meubles TV à prix mini : dès 54,99 €
 Des meubles TV modernes et fonctionnels sont disponibles à partir de 54,99 €, sans code promo requis : [Voir la promo](https://www.servicevie.com/codepromoidmarket" "promo idmarket")
 
+## Qu’est-ce qu’un code promo Id Market ?
+
+Un code promo IdMarket est un moyen simple de réduire le montant de votre commande sur le site IdMarket.com. Il s’agit d’un code composé de lettres et de chiffres (par exemple IDMARKET10 ou BONPLAN15) à saisir lors du paiement. Selon l’offre en cours, il peut vous permettre de bénéficier d’une remise en euros, d’un pourcentage de réduction ou encore de la livraison gratuite sur certains produits.
+
+Son utilisation est rapide : il suffit d’entrer le code dans le champ prévu à cet effet avant de valider votre panier. Si les conditions sont respectées (montant minimum, période de validité, type de produits concernés), la réduction s’applique immédiatement. C’est donc un excellent moyen de faire des économies sur vos achats maison, décoration ou jardin.
+
+**Exemple de codes promo IdMarket expirés**  :
+| Code Promo | Réduction | Date d’expiration |
+|-----------|-----------|-------------------|
+| PROMO5B   | 5 € de réduction | 31 octobre 2025 |
+| PROMO5B   | 10 € offerts | 15 août 2024 |
+| AFFFAR010 | 10 % de réduction | 5 septembre 2024 |
+| WELCOME10 | 10 % pour les nouveaux clients | 1 juin 2024 |
+| dke5226   | 50 % de remise (nouveaux clients) | 30 avril 2024 |
+| SPRINGSALE | 15 % de réduction (soldes) | 28 février 2024 |
+| XXXO5B    | 10 € de remise dès 200 € d’achat | 30 janvier 2024 |
+| PROMO5B   | 5 % sur la première commande (nouveaux clients) | 2 novembre 2023 |
+| INTLD01   | 5 % de réduction sur tout le site | 30 septembre 2023 |
+
 ## Comment utiliser un code promo IDMarket ?
 
 Utiliser un **code promo sur IDMarket** est un jeu d’enfant. Une fois que vous avez ajouté vos produits au panier, cliquez sur « Commander » pour accéder à la page de validation.
